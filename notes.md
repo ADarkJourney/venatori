@@ -2,13 +2,13 @@
 _(from latin for etnernal: aeternus)_
 A race of immortal beings - or seemingly so - they do not age, nor do they die from sickness or disease - but they can be killed.  They are the overlords to most of the worlds supernatural beings.  Because of their long life Aeternus control their population - one full blooded child per couple per 100 years.
 
-An Aeternus stops aging upon completely the Ad Aetatem (coming of age) ritual, which is usually held around a quarter of a century old.
+An Aeternus stops aging upon completing the Ad Aetatem (coming of age) ritual, which is usually held around a quarter of a century old.
 
 # Dimiaeter
 _(from latin for half and eternal: dimidius)_
-Dimiaeter are half Aeternus and half human.  They are a rare speices as most female Aeternus do not fraternize with male humans.  Under most circumstances  female human is unable to carry a dimiaeter to full term, but it has been known to happen on a VERY rare occassion.  Dimiaeter are not usually immortal, they have longer than human lives
+Dimiaeter are half Aeternus and half human.  They are a rare speices as most female Aeternus do not fraternize with male humans.  Under most circumstances  female human is unable to carry a dimiaeter to full term, but it has been known to happen on a VERY rare occassion.  Dimiaeter are not usually immortal, but they do have longer than human lives
 
-Dimiaeter living with Aeternus preform the Ad Aetatem, this is typically the indicator as to their immortal or their extended life cycle.  Approximately one in every 1000 Dimiaeter are immortal.  The ritural is preformed at the age of 18 for all Dimiaeter.
+Dimiaeter living with Aeternus preform the Ad Aetatem, this is typically the indicator as to their immortal or their extended life cycle.  Approximately one in every 1000 Dimiaeter are immortal.  The ritural is preformed at the age of 18 for all Dimiaeter.  The aging process slows ot stops at the Ad Aetatem's completion.
 
 # The Venatori 
 _(from latin for hunter: venator)_
