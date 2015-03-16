@@ -18,6 +18,8 @@ An Aeternus who's sole existance is to record history.  Each Scrin typically dev
 _(from latin for mage: Magnus)_
 A Magnus is typically an Aeternus or Dimiaeter who can bend the elements to their will.  Most Magnus can only easily manipulate one elemental force, the others remaining just out of reach, however there are a handful who can do more than one, and typically they can only bend one element at a time.  A magnus who can bend all four elements at once is called a cesari.
 
+## Heirarchy
+
 A Magnus can be a natural or can be taught when they come of age, this is important in the heirarchy of the Magnus culture.  Nativus (natural) are higher ranked than Eruditus (learned) in most cases.  There is a rare occurance of Eruditus outranking a Nativus magnus because of sheer power and skill, but that is atypical.
 
 There are four elements - Ignis (fire), Aqua (water), Terra (earth), Aeris(air).  A Magnus is clearly defined by his or her element and ability. A fire magnus who was born with the ability to bend the element is called an Nativus Ignis Magnus or NIM.
@@ -26,13 +28,25 @@ If a magnus can bend more than one element their primary is listed first (ie:  N
 
 There are 5 levels of power.  Typically a magus is at one power level throughout the entire course of their lives, however on a rare occassion with enough training a magus may attain a new level.  
 
-Power, Skill (Novice, Adept, Expert, Master), Elements and Inana ability to bend the elements determing a magnus rank and designation with in the heirarchy of the Imperordo (from latin order and command: ordo, impero).
+Power, Skill (Novice, Adept, Expert, Master), Elements and Inate ability to bend the elements determing a magnus rank and designation with in the heirarchy of the Imperordo (from latin order and command: ordo, impero).
+
+A natural born Master of the highest power of any one element outranks all others except a Master Cesari.
+
+Each Magnus tends to add the desgination to their names when confiring within the Imperodo.  
+
+For Example a master of the hightest power in fire who was natural born who's name is John Doe would indicate his name as such:  John Doe, MNIM5
+
+A novice third level cesari: NNC3
+
+An expert second level taught magnus in earth and water: EETAeM2
+
+The heirarchy is determined in the following order:  Skill level, Inate ability, Power level.
 
 ## Cesari 
 _(from latin for alchemist: Cesarem)_
 A Magnus with the ability to bend all four elements at the same time.
 
-## The Emperordo
+## The Imperordo
 _(from latin order and command: ordo, impero)_
 The orginzation that rules over all Magnus, defining their heirarchy, rules and oversees the training of all magnus.
 
