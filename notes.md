@@ -1,14 +1,18 @@
 # The Aeternus
 _(from latin for etnernal: aeternus)_
-A race of immortal beings.  They are the overlords to most of the worlds supernatural beings.
+A race of immortal beings - or seemingly so - they do not age, nor do they die from sickness or disease - but they can be killed.  They are the overlords to most of the worlds supernatural beings.  Because of their long life Aeternus control their population - one full blooded child per couple per 100 years.
+
+An Aeternus stops aging upon completely the Ad Aetatem (coming of age) ritual, which is usually held around a quarter of a century old.
 
 # Dimiaeter
 _(from latin for half and eternal: dimidius)_
-Dimiaeter are half Aeternus and half human.  They are a rare speices as most female Aeternus do not fraternize with male humans.  Under most circumstances  female human is unable to carry a dimiaeter to full term, but it has been known to happen on a VERY rare occassion.
+Dimiaeter are half Aeternus and half human.  They are a rare speices as most female Aeternus do not fraternize with male humans.  Under most circumstances  female human is unable to carry a dimiaeter to full term, but it has been known to happen on a VERY rare occassion.  Dimiaeter are not usually immortal, they have longer than human lives
+
+Dimiaeter living with Aeternus preform the Ad Aetatem, this is typically the indicator as to their immortal or their extended life cycle.  Approximately one in every 1000 Dimiaeter are immortal.  The ritural is preformed at the age of 18 for all Dimiaeter.
 
 # The Venatori 
 _(from latin for hunter: venator)_
-A group that is an extension of The Aeternus to police and patrol the supernatural creatures.  The Venatori are made up of humans who have been trained to deal with supernatural creatures.  Typically all Venatori are human or Aeternus.  However on occassion other supernatural beings become part of the Venatori.
+A group that is an extension of The Aeternus to police and patrol the supernatural creatures.  The Venatori are made up of  Aeternus and humans who have been trained to deal with supernatural creatures.  However on occassion other supernatural beings become part of the Venatori.
 
 # Scrin
 _(from latin for achivist: Scriniarii)_
@@ -50,5 +54,14 @@ A Magnus with the ability to bend all four elements at the same time.
 _(from latin order and command: ordo, impero)_
 The orginzation that rules over all Magnus, defining their heirarchy, rules and oversees the training of all magnus.
 
+# Other Supernatural Beings Under the Aeternus
+
+* Vampires (per common lore - NO sparkling vampires)
+* Lycanthropes (Most large preatory mammals have a version of the lycanthropy virus)
+* Ghosts (per common lore)
+* Demons (per common lore)
+* Dragons (per common lore & dragons can take the form of a human)
+* Monsters (monsters of myths and legends that are real fall under the Aeternus control)- very broad category if you can find legnds about it it can be used easily enough
+ 
 
 
