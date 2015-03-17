@@ -99,12 +99,22 @@ His 5th year in the order, he proved to the Order he was cesari by creating a sc
 
 At the age of 10, per the usual testing requirements, Skill mastery is tested.  Nox passed into Adept surpassing most his age.  He was designated ANC5
 
+Nox was quickly becoming an outsider in both the Venatori and the Magnus training programs.  He started seeking human companions outside the facility by sneaking out and gathering the reputation of not following the rules.  He still tried to fit in, but it was a case by case scenario.
+
+At the age of 14 Nox found the company of human women far more pleasing but his dalliances lasted very breifly as he was continuely getting into trouble by his superiors and unable to make anything more happen than a night or two of fun without raising suspicions.
+
 At sixteen while trying to fit in Nox found himself with a bunch of guys getting drunk, daring one another to do stupid things.  They dared Nox to get a tattoo.  Being drunk was the only thing that allowed him to surpass his fear of needles.
+
+Risk taking was one of the few things that kept Nox going as an outsider, he started doing things that were considered dangerous.  His favorite past time was "sky jumping" - vaulting himself from the heights of the buildings with in New York City with only his magic to catch him at the last moment.  By the time his Ad Aetatem came he had a cult following of younger magus strong in air trying to preform the same feats.  Luckily there had been no deaths prior to his graduation.  Afterwards, the practice was forbidden, without Nox's inborn ability to look out for those following him, several boys plummted to their deaths two months after he left New York City.
 
 His status as Dimiaeter moved his final testing to the age of 18.  One of the youngest Cesari ever recorded.  He went through his Ad Aetatem and was designated MNC5 in addition to the status of immortality added to his credentials.
 
 Nox has been hunting with the Venatori alone for the past 3 years choosing to be alone.  Most of the Aeternus, specifically those in the Venatori see him as an outsider, his birth was rare, his ability is rare, his status as an immortal Dimiaeter as well as his strength all rare, all setting him above nearly all with in the Imperordo and specifically the Venatori Magnus.
 
- (A vampire bite on his right forearm.  Claw marks on his left rib cage from a werebear, a slash across his left cheek from the dagger of a ghost posseed human, burn on his right knee from a dragon's flame)
+Nox's first hunt took him to Miami Beach, Florida where his first supernatural creature was of a ghost who had been brutally murdered, at first the vengeful ghost went after only those involved in her murder.  However after her revenge was fullfilled her desire to inflict harm had grown and she started haunting innocents.  She possed a girl before Nox was able to exorcise her from the body, she cut him with her dagger on his left check - leaving a scar.
 
-explain sky jumping
+6 months after his first hunt was successful Nox found himself back in Colorado hunting a werebear - one that had been stronger, and older than most in the region and his talents had been called upon to defeat the creature after it had turned three innocents and killed a dozen others.  In the fight the bear caught him across the ribs on his left before Nox took him out with a fireball that burnt hotter than than any manmade fire could.
+
+A year and 2 months after his turning 18, Nox found himself face to face with a human dragon who was robbing jewelry stores and banks to add to its horde in Hollywood, CA itself - home of everyone's best fantasies.  The dragon never took its real form but unbehest to Nox it could still breathe fire that caught him on his right leg, burning through the cloth and causing third degree burns on his outer leg around his knee.  While he vaquished the dragon by suffocation it had left enough damange that Nox was hold up for three months healing and going through rehab for the burned knee.
+
+A month after he had fully healed and recoperated enough to be let out in the field Nox went after a kiss of vampires.  He managed to take out all but the strongest vampire in a fireball, that one escaped his flames by sheer luck.  It launched itself at Nox and took a bite out of his right forearm before Nox chopped of his head with a sword of fire, earth and air.
