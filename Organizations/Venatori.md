@@ -5,7 +5,7 @@ A group that is an extension of The Aeternus to police and patrol the supernatur
 
 
 ## Headquarters
-The Venatori are a world wide organization, they have five headquarters. 
+The Venatori are a world wide organization, they have six headquarters. 
 
 * New York, New York - This facility is the training ground for all Venator including those with in the Imperordo.  They also monitor the Eastern US and Canada.
 * Boulder, Colorado - The Rocky Mountain facility monitors the Western North American mountain Ranges and Mexico for their unique supernatural creatures.  They also offer training in survival at extremes.

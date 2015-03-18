@@ -20,7 +20,7 @@ An Aeternus who's sole existance is to record history.  Each Scrin typically dev
 
 # Magnus
 _(from latin for mage: Magnus)_
-A Magnus is typically an Aeternus or Dimiaeter who can bend the elements to their will.  Most Magnus can only easily manipulate one elemental force, the others remaining just out of reach, however there are a handful who can do more than one, and typically they can only bend one element at a time.  A magnus who can bend all four elements at once is called a cesari.
+A Magnus is typically an Aeternus or Dimiaeter who can bend the elements to their will.  Most Magnus can only easily manipulate one elemental force, the others remaining just out of reach, however there are a handful who can do more than one, and typically they can only bend one element at a time.  A magnus who can bend all four elements at once is called a cesari.  A person who could have been a magnus or was unable to complete training and has had their power pulled from them is called Tacet _(from latin for silence: tacet)_.
 
 ## Heirarchy
 
