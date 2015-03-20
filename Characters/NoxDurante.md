@@ -107,11 +107,19 @@ At sixteen while trying to fit in Nox found himself with a bunch of guys getting
 
 Risk taking was one of the few things that kept Nox going as an outsider, he started doing things that were considered dangerous.  His favorite past time was "sky jumping" - vaulting himself from the heights of the buildings with in New York City with only his magic to catch him at the last moment.  By the time his Ad Aetatem came he had a cult following of younger magus strong in air trying to preform the same feats.  Luckily there had been no deaths prior to his graduation.  Afterwards, the practice was forbidden, without Nox's inborn ability to look out for those following him, several boys plummted to their deaths two months after he left New York City.
 
-His status as Dimiaeter moved his final testing to the age of 18.  One of the youngest Cesari ever recorded.  He went through his Ad Aetatem and was designated MNC5 in addition to the status of immortality added to his credentials.
+His status as Dimiaeter moved his final testing to the age of 18. One of the youngest Cesari ever recorded. 
 
-(( insert meeting his father before tha Ad Aetatem ))
+The day before his Ad Aetatem Nox met his father Kai.  It was as uncerimonious as it sounds.  They had dinner and Kai shook Nox's hand before he went back to his hotel to sleep.  Nox's mother was disappointed in the reaction.
 
-(( insert his Ad Aetatem ))
+Nox saw his father again at the first part of his Ad Aetatem which was the grossed ritual he'd ever seen.  Poor rabbit killed for the express purpose of it's intestines wrapped around their wrists only to be severed and the ichor to fall upon the fire beneath it.  
+
+The second part was more kind, but less symbolic.  The drug they pumped into his veins caused hallucinations.  Nox saw things he wished he hadn't seen.  He saw the death of his human mother.  Saw a man that stired something deep within, Nox wasn't sure what exactly it was.  The last part of the vision was a kaledscope of monsters, small flashes of things with no real meaning to them.
+
+The third part was the hardest part for Nox.  The crossed swords at his temples were tattooed quickly and quietly but Nox's entire body was tense, his breathing was ragged and sweat covered his body by time the two small swords were finished.
+
+His test went smoothly for the Imperordo, not only had it gone smoothly they bumped his skill to Master level instead of Expert. A rare feat by any Magnus. He was designated MNC5.
+
+As Dimiaeter the blood test indicated he was also Immortal like his father.
 
 Nox has been hunting with the Venatori alone for the past 3 years choosing to be alone.  Most of the Aeternus, specifically those in the Venatori see him as an outsider, his birth was rare, his ability is rare, his status as an immortal Dimiaeter as well as his strength all rare, all setting him above nearly all with in the Imperordo and specifically the Venatori Magnus.
 
